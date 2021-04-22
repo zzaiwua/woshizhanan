@@ -2,6 +2,6 @@
 
 最新发布地址：
 
-https://dxcr.xyz
+https://eakkk.com/
 
 收藏本页面，找到回家的路！
