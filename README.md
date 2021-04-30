@@ -2,6 +2,6 @@
 
 最新发布地址：
 
-wszn.icu
+https://wszn.icu/
 
 收藏本页面，找到回家的路！
